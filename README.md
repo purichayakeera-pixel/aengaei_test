@@ -13,4 +13,4 @@ nothing we can do
 ผัดกะเพรา ก๋วยเตี๊ยว
 
 ## Favorite Activities
-play with phone
+play with cats
